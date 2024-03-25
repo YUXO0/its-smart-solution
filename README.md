@@ -1,0 +1,1 @@
+its smart solution
